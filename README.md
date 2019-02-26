@@ -1,2 +1,4 @@
 # 15WebsiteIdeas.github.io
-15 Great website ideas
+Ever wanting to make a website but not knowing what to put on it?
+The solutions here and it's EASY!
+15 Website Ideas
